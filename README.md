@@ -3,3 +3,5 @@ Today is an educational day, I have currently learnt a good few things and in th
 
 Friday night I will stay up late playing video games and watching some anime don't worry though I'll be sure to continue to have a reasonable sleep schedule and not stay awake till like 5am (sheesh) as tempting as it can be I'll try xD.
 
+(HAHAHA, I STOLE YOUR CODE!! - SMA)
+
